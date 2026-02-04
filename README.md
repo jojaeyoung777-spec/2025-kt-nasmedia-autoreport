@@ -18,3 +18,7 @@
    https://macbook2.tistory.com/81
 
 
+<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/29810142-c3c7-453d-ad81-f5dce379ae57" />
+
+
+<img width="726" height="145" alt="image" src="https://github.com/user-attachments/assets/da3b8929-7ff2-4a11-b44c-47c7e9a4fb9d" />
